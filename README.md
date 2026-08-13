@@ -11,7 +11,7 @@
 $${\color{#416600FF} nepeta \space ou \space null \space ⁺ \space he \space they \space it}$$<br>
 $${\color{#416600FF} ⟢⠀⠀\space 8teen \space dx. \space bpd \space cdid \space sys}$$<br>
 $${\color{#416600FF} › \space no dni \space + \space profic \space proship}$$<br>
-$${\color{#416600FF} always \space c+h \space friendly \space and \space w2i}$$<br>
+$${\color{#416600FF} knight \space of \space blood \space always \space c+h \space friendly}$$<br>
 $$<br>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=15&pause=250&color=416600&vCenter=true&width=435&lines=%3A33+%3C+*a+furrocious+and+concerned+moirail;suddenly+appurrches+out+of;some+wild+shrubberies!!!*" alt="Typing SVG" /></a>
