@@ -42,8 +42,7 @@ $$<br>
 
 <div align="center">
   
-$${\color{#416600FF} me \space and \space my \space papa \space n \space brother}$$<br>
-$${\color{#416600FF} im⠀\space always \space w \space him \space !! \space <3}$$<br>
+$${\color{#416600FF} me \space and \space my \space dad-brother \space matesprit \space he \space kisses \space me \space and \space holds \space me \space #happierthanyou}$$<br>
 $$<br>
 
   </div>
