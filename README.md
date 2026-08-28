@@ -9,7 +9,7 @@
 <div align="center">
   
 $${\color{#416600FF} nepeta \space ou \space ducky \space ⁺ \space he \space they \space it}$$<br>
-$${\color{#416600FF} ⟢⠀⠀\space 8teen \space dx. \space bpd \space cdid \space sys}$$<br>
+$${\color{#416600FF} ⟢⠀⠀\space 9teen \space dx. \space bpd \space cdid \space sys}$$<br>
 $${\color{#416600FF} › \space no dni \space + \space profic \space proship}$$<br>
 $${\color{#416600FF} knight \space of \space blood \space ♡ \space always \space c+h}$$<br>
 $$<br>
