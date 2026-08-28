@@ -16,3 +16,34 @@ $$<br>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=15&pause=250&color=416600&vCenter=true&width=435&lines=%3A33+%3C+*a+furrocious+and+concerned+moirail;suddenly+appurrches+out+of;some+wild+shrubberies!!!*" alt="Typing SVG" /></a>
   </div>
+
+---
+# STRIDERCEST WARNING !!!!!! DONT LOOK IF YOU DONT LIKE !!
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+⚠️
+<p>   <img  align="right" src="https://github.com/mewpeta/mewpeta/blob/main/brandbird.gif?raw=true" width="30%"/>
+    
+<div align="left">
+
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+<div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+
+<div align="center">
+  
+$${\color{#416600FF} me \space and \space my \space papa \space n \space brother}$$<br>
+$${\color{#416600FF} im⠀\space always \space w \space him \space !! \space <3}$$<br>
+$$<br>
+
+  </div>
